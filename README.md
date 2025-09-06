@@ -40,6 +40,7 @@ Join **SargeHosting** and experience hosting like never before. Visit [sarge.wtf
 ## Contact Us
 
 Questions? Need support? Reach out:  
-**Email:** support@sargehosting.com  
+**Email:** no-reply@sarge.wtf 
+> -# emails are monitored from this, just not responded via this
 **Discord:** [Invite Link](https://discord.gg/sg5Dek5ah4)
 
